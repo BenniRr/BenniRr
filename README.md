@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @BenniRr
+- 👀 I’m interested in UX Design
+- 🌱 I’m currently learning React, Windows Botframework
+- 💞️ I’m looking to collaborate on nothing atm
+- 📫 How to reach me benedikt.rank@gmx.de
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: I am German and dont have Humor, but I like and drink a lot of Beer
